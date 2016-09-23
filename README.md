@@ -36,4 +36,5 @@
 
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
 <p><b>购书请访问 <a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/%E8%96%84%E7%86%99%E4%BE%86%E7%8E%8B%E7%AB%8B%E8%BB%8D%E6%A1%88%E8%A2%AB%E6%8E%A9%E8%97%8F%E5%85%A7%E5%B9%95-84382038?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"> 新纪元商城</a></b>
+<p><a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
