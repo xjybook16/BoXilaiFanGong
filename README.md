@@ -21,5 +21,5 @@
 
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
 <p><b>购书请访问 <a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/薄熙來翻供真相-84243323?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat"> 新纪元商城</a></b>
-<p><a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
+<p><a href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
