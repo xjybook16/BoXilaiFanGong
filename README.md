@@ -1,4 +1,4 @@
-<h1>薄熙來翻供真相</h1>
+<h1>《薄熙來翻供真相》</h1>
 <a id="013" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/薄熙來翻供真相-84243323?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="薄熙來翻供真相"><img border="0" alt="薄熙來翻供真相" src="https://cloud.githubusercontent.com/assets/20497761/18775017/c0a84584-812c-11e6-96ca-ff11ee3ed002.jpg" style="max-width:100%;"></a>
 
 <h2>内容介绍：</h2>
