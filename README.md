@@ -19,7 +19,7 @@
 
 薄熙来一生经历颇多曲折，从肆意妄为的红卫兵，到多年沉底的牢狱生活，再从大连进入政坛，最后成为中国大陆毛左的一面旗帜，其间黑幕紧锁迷雾重重。薄熙来真正的罪恶，也绝非政治野心那么简单。本书抽丝剥茧，一桩桩内幕都予细细道来，案件内幕及真相惊人。
 
-<p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
+<p><img src="https://cloud.githubusercontent.com/assets/20497761/18823715/69f77696-838a-11e6-82f7-6c9694358fd1.png"></p>
 <p><b>购书请访问 <a id="013" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/薄熙來翻供真相-84243323?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat"> 新纪元商城</a></b>
 <p><a href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
